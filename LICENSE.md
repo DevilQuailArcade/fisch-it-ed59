@@ -1,4 +1,4 @@
-
+stealth Scripts for fisch it is the best fisch it Script, featuring invisibility and auto-heal. Safe and powerful for all your needs.
 
 
 
